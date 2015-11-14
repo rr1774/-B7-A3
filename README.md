@@ -12,4 +12,4 @@
 |10 Punkte  | 5 Punkte | 10 Punkte|
 
 ### Anmerkung
- Das **Basler Münster** *muss* man gesehen haben!!!!!
+Das **Basler Münster** *muss* man gesehen haben!!!!!
